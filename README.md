@@ -1,1 +1,1 @@
-[Visit site](https://maksymkliubatsoua.github.io/MobMRO-PrivacyPolicy/)
+[Privacy Policy](https://maksymkliubatsoua.github.io/MobMRO-PrivacyPolicy/)
